@@ -1,4 +1,4 @@
-<img src="https://www.bestdesigns.co/uploads/inspiration_images/4350/990__1511457498_404_walmart.png" alt="WALMART LOGO" />
+<img src="https://logos-marques.com/wp-content/uploads/2023/01/Walmart-Logo.png" alt="WALMART LOGO" />
 
 # Walmart : prédiction des ventes hebdomadaires
 
